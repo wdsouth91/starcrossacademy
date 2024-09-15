@@ -1,0 +1,11 @@
+As I work on creating this new and exciting world and serial fiction project, I've decided that I'm going to share some of my notes as I go! Why not, right? None of these notes will be designed to 'spoil' the series. They are going to give some background information and might even be short stories set in the world that haven't quite made their way into the main body of work.
+
+This series will also be shared on <a href="https://tumblr.com/blog/starcross-academy">Tumblr</a>! (and should pop up across the Fediverse, from this blog, too!
+
+Let's dive in!
+
+In this world, an event that took place centuries ago caused powerful gifts to manifest in everyone. These gifts aligned to the five cardinal elements, known as fire, earth, air, water, and spirit. The elements gift their magic in the form of control of those elements or things that relate to those elements. The powers of spirit are those of the mind and soul. While the elements balance each other out, there are none that are more powerful than the others. There are rumors circling that other forces can be called upon, but they are considered fringe science and aren't usually seriously examined or studied.
+
+It is unknown exactly how one acquires a specific element. Certain ones might run in families but there is also a risk that a child can be born with <em>any</em> element. There are exceedingly rare cases where a person might be born with more than one element. Nobody in living memory has possessed all of them simulatenously. Such a person would be at the mercy of their own power and probably a monster.
+
+What is clear, is that everyone, regardless of their ability level, have developed these gifts in their lives. This had lead to the development of new institutions, new venues of study, and new agencies have sprung up to oversee the management of those whose gifts have proven to be a danger to themselves and others. One academy rises above the rest of them to help shepherd these powerful beings through life and shape them, often brutally, into the beings of power they are destined to be. That place is <em>Starcross Academy</em>.
