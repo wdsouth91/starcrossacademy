@@ -1,2 +1,5 @@
 # Starcross Academy
-A collaborative, serialized fiction writing project. 
+
+The following chapters/episodes are available: 
+
+* Episode 1: Coming soon
